@@ -1,0 +1,1 @@
+# autokarta-Simba-lokacija
